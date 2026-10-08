@@ -1,0 +1,77 @@
+ROTATE YOUR PHONE
+
+Apex Rush plays in landscape
+
+Zzz...
+
+◀▶
+
+PRESENTED BY
+
+RUSH STUDIO
+
+A NEW RACING EXPERIENCE
+
+LOADING
+
+APEX RUSH
+
+HIGH-SPEED TRAFFIC RACER
+
+## GARAGE
+
+PERFORMANCE
+
+PAINT
+
+## DAILY LOGIN BONUS
+
+## SELECT LEVEL
+
+LAPS
+
+## SETTINGS
+
+Graphics quality
+
+Master volume
+
+Sound effects & engine
+
+Music
+
+Camera shake
+
+Speed lines
+
+Speed unit
+
+Show FPS
+
+Auto-accelerate (touch)
+
+Fullscreen
+
+STEER: ARROWS / A D | GAS: UP / W | BRAKE: DOWN / S | NITRO: SPACE / SHIFT | REVERSE: J | STOP AT STATION: E | PAUSE: ESC / P
+
+## REST STOP
+
+YOUR CONDITION
+
+APEX RUSH
+
+RUSH STUDIO
+
+LOADING
+
+## PAUSED
+
+## RACE COMPLETE
+
+## EXIT GAME?
+
+YOUR SETTINGS AND BEST TIMES ARE SAVED.
+
+THANKS FOR PLAYING
+
+YOU CAN NOW CLOSE THIS TAB.
